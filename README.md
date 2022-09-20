@@ -33,5 +33,5 @@ Share The Post:
 
 Video Link: 
 
-https://vimeo.com/751611691#t=0
+https://vimeo.com/751611691
 
